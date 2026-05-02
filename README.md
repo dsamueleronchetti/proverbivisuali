@@ -1,4 +1,4 @@
-# proverbivisuali
+# proverbi visuali
 
 PREFAZIONE
 
